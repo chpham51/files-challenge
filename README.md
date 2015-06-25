@@ -7,4 +7,4 @@ I hope you're having a wonderful summer so far and really appreciate that you've
 
 And have a super lovely weekend!!
 
-http://students.washington.edu/chpham51/info343/files-challenge# files-challenge
+http://students.washington.edu/chpham51/info343/files-challenge
